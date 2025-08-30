@@ -1,2 +1,0 @@
-# sample
-em ledhuu endulooo
